@@ -1,4 +1,4 @@
-#  
+#  Notion for macOS smart Tool: custom themes & tags is the best Notion for macOS tool, featuring custom themes and tags. Safe, efficient, and optimized for macOS users.
 
 
 
